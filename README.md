@@ -1,3 +1,7 @@
+<img width="2172" height="724" alt="x" src="https://github.com/user-attachments/assets/84bba811-22c7-4637-a4a0-fa54091f231c" />
+
+---
+
 # 👋 Hi, I’m @portg4s23
 
 Professional bug creator.  
